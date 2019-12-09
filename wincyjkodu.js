@@ -1,0 +1,1 @@
+jakis fix w kodzie czy tam cos 
